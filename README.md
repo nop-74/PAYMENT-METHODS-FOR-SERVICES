@@ -50,7 +50,10 @@
 
 
 
- ##  [ПОСЛЕ ОПЛАТЫ НАПИСАТЬ МНЕ В TELEGRAM](https://t.me/fradyrad)
+ ##  [ПОСЛЕ ОПЛАТЫ НАПИСАТЬ МНЕ В TELEGRAM](https://t.me/fradyrad) 
+ ##   ИЛИ 
+##  [НАПИСАТЬ В WHATSAPP ](https://wa.me/79209220591) 
+ 
 
 
 
