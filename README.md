@@ -1,4 +1,4 @@
-# -
+# PAYMENT METHODS FOR SERVICES
 ## Донаты для поддержки каналов,написания нового софта  ну в целом ...на жизнь !!
 ![Alt text](https://www.jar2.com/Please/DONAT.jpg)
 
