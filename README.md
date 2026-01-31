@@ -25,7 +25,8 @@
 
 ## Оплата по QR коду
 
-![Alt text](https://олекма.рф/wp-content/uploads/2025/04/qr_oplata-e1744938219255.jpg)
+
+![Alt text](https://imgfy.ru/ib/xAPze9zNYYUqk5C_1769891146.png)
 
 
 ## Оплата  на 500 рублей
